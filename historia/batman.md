@@ -1,0 +1,5 @@
+#  BATMAN
+
+Batman, uno de los personajes ficticios más emblemáticos del mundo, ha dedicado su vida a una cruzada interminable, una guerra contra todos los delincuentes en nombre de sus padres asesinados, que se lo quitaron cuando era solo un niño. Desde esa noche trágica, ha entrenado su cuerpo y su mente a la perfección casi física para ser un Superhéroe hecho a sí mismo. Ha desarrollado un arsenal de tecnología que avergonzaría a la mayoría de los ejércitos. Y ha reunido equipos de sus compañeros Superhéroes de DC, como Justice League, The Outsiders y Batman, Incorporated.
+
+Un multimillonario playboy durante el día, la doble vida de Bruce Wayne le brinda la comodidad de una vida sin preocupaciones financieras, un mayordomo leal convertido en guardián y la base perfecta de operaciones en la antigua red de cuevas debajo del extenso patrimonio de su familia. Por la noche, sin embargo, se despoja de todo, se pone su icónica capa festoneada y su capucha puntiaguda y sale a las calles, los cielos y los tejados sombríos de Gotham City.
